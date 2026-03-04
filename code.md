@@ -1,1 +1,1 @@
-xin chao moi nguoi
+xin chao moi nguoi toi rat dep trai
